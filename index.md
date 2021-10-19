@@ -1,7 +1,7 @@
 ## Among the Living
 [回到上一页](https://boheme130.github.io/PsyCop/)
 
-![avatar](https://picture.bookfrom.net/img/jordan-castillo-price/psycop_1_among_the_living.jpg)
+![avatar](https://kbimages1-a.akamaihd.net/df595091-aa22-46ff-82d0-c73e8d65599b/1200/1200/False/psycop-briefs-volume-1.jpg)
 <br>
 <br>
 
