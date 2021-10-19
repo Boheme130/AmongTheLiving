@@ -1,7 +1,7 @@
 ## Among the Living
 [回到上一页](https://boheme130.github.io/PsyCop/)
 
-![avatar](https://kbimages1-a.akamaihd.net/df595091-aa22-46ff-82d0-c73e8d65599b/1200/1200/False/psycop-briefs-volume-1.jpg)
+![avatar](https://dwtr67e3ikfml.cloudfront.net/bookCovers/75582df550b0b545c2bd8752258e787d1529ae67)
 <br>
 <br>
 
